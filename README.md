@@ -4,8 +4,8 @@ Telegram Chat X TG — 赚钱、创业、网赚项目导航
 
 🚀 加入群组与关注频道
 
-- "点击加入群组" (https://t.me/chat_x_8)
-- "点击关注频道" (https://t.me/chat_x_3)
+- 👉 [点击加入群组](https://t.me/chat_x_8)
+- 👉 [点击关注频道](https://t.me/chat_x_3)
 
 🎯 项目介绍
 
