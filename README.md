@@ -4,11 +4,11 @@ Telegram Chat X TG — 赚钱 · 创业 · 网赚 · 副业项目导航
 
 👥 项目交流群组
 
-- ### 👉 [点击加入群组](https://t.me/chat_x_8)
+- ### [点击加入群组](https://t.me/chat_x_8)
 
 📢 资源更新频道
 
-- ### 👉 [点击关注频道](https://t.me/chat_x_3)
+- ### [点击关注频道](https://t.me/chat_x_3)
 
 📌 项目介绍
 
